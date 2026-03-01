@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ranadanish.se@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/rana-danish-89349a32b](www.linkedin.com/in/rana-danish-89349a32b)
+- 📄 Know about my experiences [www.linkedin.com/in/rana-danish-89349a32b](www.linkedin.com/in/rana-danish-dev)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
